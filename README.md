@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi The way the world is destroyed is not a loud noise, but a sob. 👋
 
 <!--
 **xichengliuduij/xichengliuduij** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
